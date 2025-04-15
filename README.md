@@ -1,4 +1,4 @@
-# Безкоштовний VPS-хостинг: чи варто грати в цю гру?
+# Безкоштовний VPS-хостинг, чи варто грати в цю гру?
 
 ![Безкоштовний VPS-хостинг](https://rx-name.ua/blog/wp-content/uploads/2024/04/omnilance_create_flat_image_about_backups_of_server_minimalism__ee2e1457-4061-4946-a95e-aa6fe4055adb.png)
 
